@@ -1,1 +1,1 @@
-start
+https://1inokent.github.io/rsschool-cv/cv
